@@ -6,4 +6,4 @@ Além dos insumos, aqui estão os resultados do trabalho: as tabelas com as Taxa
 Referência Completa:
 QUARESMA, G.; CARVALHO, J. A. M.; WONG, L. L. R.; TURRA, C. M. A Transição da Fecundidade no Brasil ao Longo do Século XX – uma Perspectiva Regional. Revista Brasileira de Estudos de População - REBEP, 2019.
 
-Última Atualização: 18/10/2019
+Última Atualização: 04/01/2021
